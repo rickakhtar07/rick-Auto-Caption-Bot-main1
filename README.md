@@ -1,1 +1,0 @@
-# rick-Auto-Caption-Bot-main1
